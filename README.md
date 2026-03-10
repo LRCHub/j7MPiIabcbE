@@ -1,4 +1,4 @@
-# Mrs. GREEN APPLE – クダリ
+# Mrs. GREEN APPLE – クダリ - Kudari
 
 > **歌詞登録ステータス：同期歌詞あり**
 
